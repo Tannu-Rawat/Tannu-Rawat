@@ -3,7 +3,7 @@
 - 👀 I’m interested in watching movies,web series,travelling new places,lyrics writing and listening music , learning new languages and ofcource coding.
 - 📫 How to reach me - My linkedin -linkedin.com/in/tannu-rawat-782757278
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: My hobby is DAY-DREAMING.
+- ⚡ Fun fact: My hobby is DAY-DREAMING and CODING.
 
 <!---
 Tannu-Rawat/Tannu-Rawat is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
